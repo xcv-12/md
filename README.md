@@ -129,6 +129,6 @@
 
 毕竟不之向后修些甚么道果，且听下回分解。
 <div align="right">
-  <b><a href="#index">↥ Back To Top</a></b>
+  <b><a href="#西游记">↥ Back To Top</a></b>
 </div>
 
